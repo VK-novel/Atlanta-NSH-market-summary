@@ -1,0 +1,1 @@
+Atlanta Market summary
